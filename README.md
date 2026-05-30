@@ -1,1 +1,0 @@
-# Oil-Palm-Growth-Derivative
